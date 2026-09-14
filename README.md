@@ -6,4 +6,7 @@ https://we.tl/t-52ZGhyjsbrqvpZey
 
 I will soon take down this link i dont want to cause harm
 
-🇮🇱🤮
+
+# Disclaimer
+
+This is a custom apk made by my team and does not imitate any of the existing launchers. Please test it and give feedback for improvements! 😊
