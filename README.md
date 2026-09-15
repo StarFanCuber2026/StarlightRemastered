@@ -1,15 +1,10 @@
 # StarlightRemastered
 Best launcher to enjoy unrestricted access to load custom mods and ad free experience
 
-## Download latest beta 
-New link dropping soon 👀 
-
-### FAQ 
-Q. New link when?
-Soon if no apology from the people who started this
-
-Q. Will you make more releases in future?
-No unless I am forced but mostly no
+## Notice
+No new release will be made as people have apologised
+Stay happy and safe
+sorry if I caused harm and stress 🙏 
 
 # Disclaimer
 
