@@ -2,7 +2,7 @@
 Best launcher to enjoy unrestricted access to load custom mods and ad free experience
 
 ## Download latest beta 
-Enough downloads for today
+New link dropping soon 👀 
 
 ### FAQ 
 Q. New link when?
